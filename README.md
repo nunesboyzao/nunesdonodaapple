@@ -1,2 +1,11 @@
-# nunesdonodaapple
-eu sou o dono da apple desde 1970 vou criar o iphone 17 esse ano!!!!!!!
+### BOA VINDAS A0 MEU PERFIL 🖤
+Meu nome é Luiz Tobias
+- Estou estudando no Alura
+- Estou me desenvolvendo na linguagem javascrpit
+- Utilizo esse espaço para organizar meus projetos desenvolvidos
+
+  ### Você entrar em contato comigo📧
+
+  nunesluiz2107@gmail.com
+  
+  @eeununes
